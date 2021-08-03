@@ -15,5 +15,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-
-[TheMoat] (https://twitter.com/theMoat) 
+[themoat Michel Girard (@theMoat) / Twitter](https://twitter.com/theMoat) 
